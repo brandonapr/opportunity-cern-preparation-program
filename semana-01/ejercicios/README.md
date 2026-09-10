@@ -1,0 +1,1 @@
+Dado que la realizacion de las actividades son netamente respuestas escritas me tomo la libertad de adjuntar mis respuestas en las tres actividades y separar en la carpeta de evidencias una carpeta en cada caso.
